@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm M Joshna Reddy
-**Aspiring Software Engineer | MERN Stack Developer | AI & ML Enthusiast | Actively Seeking Internship Opportunities**
+**Aspiring |    |  | Actively Seeking Internship Opportunities**
 
 🔗 Portfolio: 
 
